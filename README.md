@@ -1,0 +1,1 @@
+# kayipsiz algoritma
